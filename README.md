@@ -1,2 +1,2 @@
-# rakatmof.github.io
+# rakatmof
 Community Of Maumere
